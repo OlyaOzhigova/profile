@@ -4,3 +4,6 @@
 "Amo vitam"
 ## Качества
 Позитивная, ответственная, миролюбивая
+##
+Состояние
+c:\Users\olyao\AppData\Local\Temp\86.jpg
